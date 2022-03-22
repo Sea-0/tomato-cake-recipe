@@ -1,0 +1,3 @@
+Coloque adiantado a temperatura do forno para 150 graus celsius,
+após isso, pegue uma bacia funda e grande, após isso coloque 250g de farinha, um recipiente de molho de tomate, 200ml de leite, 3 colheres de açúcar e misture bem até só ver o molho de tomate. Agora coloque em uma forma de bolo e derrame a bacia na forma. Só falta colocar em seu forno o bolo e quando 45 minutos passarem, ta-da! Um bolo de tomate bem doce e delicioso!
+OBS a colher deve ser de chá.
